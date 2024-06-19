@@ -7,5 +7,3 @@
 
 ### https://github.com/belgaied2/susecon-participant-repo/blob/hm4l5/README.md
 
-### https://github.com/belgaied2/susecon-participant-repo/blob/g4unf/README.md
-
