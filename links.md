@@ -13,9 +13,3 @@
 
 ### https://github.com/belgaied2/susecon-participant-repo/blob/veiq8/README.md
 
-### https://github.com/belgaied2/susecon-participant-repo/blob/el7vs/README.md
-
-### https://github.com/belgaied2/susecon-participant-repo/blob/f04bc/README.md
-
-### https://github.com/belgaied2/susecon-participant-repo/blob/9qr8y/README.md
-
