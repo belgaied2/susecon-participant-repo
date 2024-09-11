@@ -39,3 +39,13 @@
 
 ### https://github.com/suselearn/techsummit24-guide/9cq2v/README.md
 
+### https://github.com/suselearn/techsummit24-guide/ii8mu/README.md
+
+### https://github.com/suselearn/techsummit24-guide/ixkjw/README.md
+
+### https://github.com/suselearn/techsummit24-guide/16uuj/README.md
+
+### https://github.com/suselearn/techsummit24-guide/yjgb2/README.md
+
+### https://github.com/suselearn/techsummit24-guide/l7977/README.md
+
